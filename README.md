@@ -39,7 +39,7 @@
 <div align="center">
 <div align="center">⠀
 <div align="center">⠀
-<img width="1280" height="452" alt="Untitled1020_20260813193508" src="https://github.com/user-attachments/assets/c10b6b10-1466-4acf-b4cc-d6d392a97f38" />
+<img width="1280" height="452" alt="Untitled1020_20260813193508" src="https://github.com/user-attachments/assets/97a41da4-01f2-43a6-9b9a-0e4413345a70" />
 
 
 
