@@ -6,7 +6,7 @@
 
 about ,, 
 
-- I'm mostly known as Ze / Wall
+- I'm mostly known as Ze / Zach
 
 - im a Ze fictionkin so i'd be more than happy to be called Ze !!
 
