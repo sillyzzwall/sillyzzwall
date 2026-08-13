@@ -1,12 +1,11 @@
-⠀⠀⠀⠀⠀⠀—⠀" Ze is my kitty, my kitty, my kitty, and i think xe's pretty! "
+⠀⠀⠀⠀⠀⠀⠀" Ze is my kitty, my kitty, my kitty, and i think xe's pretty! "
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀—⠀" Ze is my kitty, n xe thinks you're shitty!" /lyr
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀" Ze is my kitty, n xe thinks you're shitty!" /lyr
 
 ⌖ ⸝⸝ hello , hello!! this github is mostly for pt ⸝⸝ read my rentry to know more, i aint typing allat!!! :-/
 
 - You can find me *mostly* around in the Dandy's world / Roblox area.
-- Plz dont cuddle w/ me if the person im cuddling with has "dniuc/dniuf in their name.
-- Feel free to int
+- Feel free to int , Tho im mostly offtab
 
 about ,, 
 
