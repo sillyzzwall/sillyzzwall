@@ -32,7 +32,7 @@
 <div align="center"><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/1e9ea07e-ed43-4086-8d6a-340f082bf6d5" />  <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/b98e4651-1304-49d8-926a-76a55e7eff4b" />
 <div align="center">⠀
 <div align="center">⠀
-<div align="center">⠀<img width="160" height="24" alt="Image" src="https://github.com/user-attachments/assets/9caaf23b-04e9-43b8-8cd8-03e837968c75" />
+<div align="center">⠀<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/950de97b-2714-4f78-a97c-f8b4ea033e93" />
 <div align="center">⠀
 <div align="center">⠀
 <div align="center">hey Sunny!
