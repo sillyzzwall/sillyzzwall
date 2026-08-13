@@ -23,7 +23,7 @@
 <div align="center">⠀
 <div align="center"> • i use he/they/xe , he xe preferred but i'd love if you alternate between these pronouns
 <div align="center">⠀
- <div align="center"> • i use a typing quirk yeah
+ <div align="center"> • i use a typing quirk yeah ingame
 <div align="center">⠀
 <div align="center">• boundaries in rentry , strawpage in progress
 <div align="center">⠀
