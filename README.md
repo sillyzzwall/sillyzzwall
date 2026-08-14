@@ -16,6 +16,7 @@
 <div align="center"> • My default skin is my Ze
 <div align="center"> • Feel free to int , Tho im offtab most of the time
 <div align="center"> • I'm only online when i'm on my computer which is not every day
+<div align="center"> • I only play pt for a specific friend.... gulp...
 <div align="center">⠀
 <div align="center">⠀
 <div align="center"> <img src="https://github.com/user-attachments/assets/3ade1be4-bea1-4b3c-9582-665a322c90d0" width="120%">
