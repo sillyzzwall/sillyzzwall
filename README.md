@@ -34,10 +34,12 @@
 <div align="center"> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/b370edac-3851-4778-b247-2b9a5fa4ce1d" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/68b32bba-da31-4c45-a909-4135ed6b0776" /><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0600e928-3262-47b0-a81d-97a9150b48a3" />
 <div align="center"><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/1e9ea07e-ed43-4086-8d6a-340f082bf6d5" />  <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/b98e4651-1304-49d8-926a-76a55e7eff4b" />
 <div align="center">⠀
+ <div align="center">⠀
+ <div align="center">" Bitches get stitches.. stitches bitches stitches! "⠀
 <div align="center">⠀
-<div align="center">⠀<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/950de97b-2714-4f78-a97c-f8b4ea033e93" />
+ <div align="center">⠀
+<div align="center">⠀ᶻ 𝗓 𐰁 
 <div align="center">⠀
- <div align="center">" Bitches get stitches.. stitches bitches stitches! "
 <div align="center">⠀
 <div align="center">hey Sunny!
 <div align="center">
