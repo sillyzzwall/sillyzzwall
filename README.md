@@ -7,7 +7,7 @@
 <div align="center">⠀
 <div align="center"><img width="50" height="50" alt="Image" src="https://github.com/user-attachments/assets/0529a54c-dac5-416b-8f88-0ce05c7c85f5" />
 <div align="center">⠀
-<div align="center"> *hello , hello!! this github is ONLY for pt ⸝⸝ read my rentry to know more, i aint typing allat!!! :-/* 
+<div align="center"> **hello , hello!! this github is ONLY for pt ⸝⸝ read my rentry to know more, i aint typing allat!!! :-/**
 <div align="center">⠀
 <div align="center"> • You can find me *mostly* around in the Dandy's world / Roblox area.
 <div align="center"> • Feel free to int , Tho im mostly offtab
