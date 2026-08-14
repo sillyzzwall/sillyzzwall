@@ -2,13 +2,16 @@
 <div align="center">⠀
 <div align="center">" Ze is my kitty, my kitty, my kitty! "
 <div align="center"> " Ze is my kitty, and i think xe's pretty! "
+<div align="center">⠀
 <div align="center">⠀ـــــــــﮩ٨ـ
+<div align="center">⠀
 <div align="center"> " Ze is my kitty, n xe thinks you're shitty!" /lyr
 <div align="center">⠀
 <div align="center"><img width="50" height="50" alt="Image" src="https://github.com/user-attachments/assets/0529a54c-dac5-416b-8f88-0ce05c7c85f5" />
 <div align="center">⠀
-<div align="center"> **hello , hello!! this github is ONLY for pt ⸝⸝ read my rentry to know more, i aint typing allat!!! :-/**
-<div align="center">⠀
+<div align="center"> hello , hello!! this github is ONLY for pt
+<div align="center">⠀read my rentry to know more abt me if interested
+ <div align="center">⠀
 <div align="center"> • You can find me *mostly* around in the Dandy's world / Roblox area.
 <div align="center"> • Feel free to int , Tho im mostly offtab
 <div align="center">⠀
@@ -34,6 +37,7 @@
 <div align="center">⠀
 <div align="center">⠀<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/950de97b-2714-4f78-a97c-f8b4ea033e93" />
 <div align="center">⠀
+ <div align="center">" Bitches get stitches.. stitches bitches stitches! "
 <div align="center">⠀
 <div align="center">hey Sunny!
 <div align="center">
