@@ -13,7 +13,7 @@
 <div align="center">⠀read my rentry to know more abt me if interested
  <div align="center">⠀
 <div align="center"> • You can find me around the "Dw" / mcyt area
-<div align="center"> • my Default skin is my Ze
+<div align="center"> • My default skin is my Ze
 <div align="center"> • Feel free to int , Tho im offtab most of the time
 <div align="center"> • I'm only online when i'm on my computer which is not every day
 <div align="center">⠀
