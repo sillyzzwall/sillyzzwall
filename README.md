@@ -2,7 +2,7 @@
 <div align="center">⠀
 <div align="center">" Ze is my kitty, my kitty, my kitty! "
 <div align="center"> " Ze is my kitty, and i think xe's pretty! "⠀
-<div align="center">⠀
+<div align="center">⠀ـــــــــﮩ٨ـ
 <div align="center"> " Ze is my kitty, n xe thinks you're shitty!" /lyr
 <div align="center">⠀
 <div align="center"><img width="50" height="50" alt="Image" src="https://github.com/user-attachments/assets/0529a54c-dac5-416b-8f88-0ce05c7c85f5" />
@@ -16,7 +16,7 @@
 <div align="center"> <img src="https://github.com/user-attachments/assets/3ade1be4-bea1-4b3c-9582-665a322c90d0" width="120%">
 <div align="center">⠀
 <div align="center">⠀
-<div align="center"> • I'm mostly known as Ze / Zach / Harvey
+<div align="center"> • I'm known as Ze / Zach / Harvey
 <div align="center">⠀
 <div align="center"> • im a Ze fictionkin so i'd be more than happy to be called Ze !!
 <div align="center">  ( + Zach i love that name. feel free to alternate between those)
