@@ -1,7 +1,7 @@
 <img width="1280" height="213" alt="Image" src="https://github.com/user-attachments/assets/e486fd5a-c4de-482a-a47e-c99947417e76" />
 <div align="center">⠀
-<div align="center">⠀" Ze is my kitty, my kitty, my kitty, and i think xe's pretty! "
-<div align="center">⠀
+<div align="center">⠀" Ze is my kitty, my kitty, my kitty!
+<div align="center"> " Ze is my kitty, and i think xe's pretty! "⠀
 <div align="center">⠀
 <div align="center"> " Ze is my kitty, n xe thinks you're shitty!" /lyr
 <div align="center">⠀
