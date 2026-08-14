@@ -12,8 +12,10 @@
 <div align="center"> hello , hello!! this github is ONLY for pt
 <div align="center">⠀read my rentry to know more abt me if interested
  <div align="center">⠀
-<div align="center"> • You can find me *mostly* around in the Dandy's world / Roblox area.
-<div align="center"> • Feel free to int , Tho im mostly offtab
+<div align="center"> • You can find me around the "Dw" / mcyt area
+<div align="center"> • my Default skin is my Ze
+<div align="center"> • Feel free to int , Tho im offtab most of the time
+<div align="center"> • I'm only online when i'm on my computer which is not every day
 <div align="center">⠀
 <div align="center">⠀
 <div align="center"> <img src="https://github.com/user-attachments/assets/3ade1be4-bea1-4b3c-9582-665a322c90d0" width="120%">
