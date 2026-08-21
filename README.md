@@ -1,11 +1,11 @@
 <img width="1280" height="213" alt="Image" src="https://github.com/user-attachments/assets/e486fd5a-c4de-482a-a47e-c99947417e76" />
 <div align="center">⠀
-<div align="center">" Ze is my kitty, my kitty, my kitty! "
-<div align="center"> " Ze is my kitty, and i think xe's pretty! "
-<div align="center">⠀
+<div align="center">" Needy girl overdose i've fallen on my face, "
+<div align="center"> " i'm too unstable! "
+<div align="center">⠀/lyr
+<div align="center">  
 <div align="center">⠀ـــــــــﮩ٨ـ
 <div align="center">⠀
-<div align="center"> " Ze is my kitty, n xe thinks you're shitty!" /lyr
 <div align="center">⠀
 <div align="center"><img width="50" height="50" alt="Image" src="https://github.com/user-attachments/assets/0529a54c-dac5-416b-8f88-0ce05c7c85f5" />
 <div align="center">⠀
