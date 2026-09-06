@@ -1,7 +1,6 @@
 <img width="1280" height="213" alt="Image" src="https://github.com/user-attachments/assets/e486fd5a-c4de-482a-a47e-c99947417e76" />
 <div align="center">⠀
-<div align="center">" Needy girl overdose i've fallen on my face, "
-<div align="center"> " i'm too unstable! "
+<div align="center">" When i die they will bury me a woman "
 <div align="center">⠀
 <div align="center">⠀.lyr
 <div align="center">⠀
