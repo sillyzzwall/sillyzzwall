@@ -38,7 +38,7 @@
 <div align="center"><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/1e9ea07e-ed43-4086-8d6a-340f082bf6d5" />  <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/b98e4651-1304-49d8-926a-76a55e7eff4b" />
 <div align="center">⠀
  <div align="center">⠀
- <div align="center">" Bitches get stitches.. stitches bitches stitches! "⠀
+ <div align="center">" I'll die anything but a man "⠀
 <div align="center">⠀
  <div align="center">⠀
 <div align="center">⠀ᶻ 𝗓 𐰁 
