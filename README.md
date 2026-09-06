@@ -27,7 +27,7 @@
 <div align="center"> • im a Ze fictionkin so i'd be more than happy to be called Ze !!
 <div align="center">  ( + Zach i love that name. feel free to alternate between those)
 <div align="center">⠀
-<div align="center"> • i use he/they/xe , he xe preferred but i'd love if you alternate between these pronouns
+<div align="center"> • i use he/xe , he xe preferred but i'd love if you alternate between these pronouns
 <div align="center">⠀
  <div align="center"> • i use a typing quirk ingame
 <div align="center">⠀
